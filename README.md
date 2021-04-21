@@ -1,2 +1,2 @@
-# bot-
-bot creato da lorenzo fra2007
+# bot-creato-da-lorenzo-fra
+bot fortnite dilorenzo fra20'
